@@ -1,2 +1,2 @@
-# Ang-lica-L-pez-Yujra
+# Angelica-Lopez
 Angélica Marilyn López Yujra
